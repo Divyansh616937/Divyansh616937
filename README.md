@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Divyansh Singh Chauhan
+- 👋 Hi, I’m Kapil Singh Chauhan
 - 👀 I’m interested in Hacking , Programming , I.T Stuff
 - 🌱 I’m currently learning Hacking
 
